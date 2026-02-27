@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning the best way to use GitHub copilot 
 - 💞️ I’m looking to collaborate on a project that could make me rich
 - 📫 How to reach me ±1 (825)-488-4541
-- 😄 Pronouns: he/him (I love girls so if you're a girl you know what to do now)
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: I train AI for fun
 - 📅 j'ai 18 ans et je parle français comme première👅 
 
